@@ -1,3 +1,0 @@
-# panda
-# panda
-# panda
